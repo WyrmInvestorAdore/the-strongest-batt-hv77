@@ -1,4 +1,4 @@
-#  
+#  smart re:rangers x Script offers the most advanced re:rangers x Script, with instant win and speed. Perfect for dominating any match.
 
 
 
